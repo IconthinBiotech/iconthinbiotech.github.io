@@ -1,42 +1,42 @@
-Iconthin Biotech
+# Iconthin Biotech  
 
-Welcome to Iconthin Biotech, a science-driven company dedicated to developing high-quality nutritional products powered by natural astaxanthin. Our mission is to provide innovative antioxidant supplements that support long-term health, wellness, and vitality.
+Welcome to **Iconthin Biotech**, a science-driven company dedicated to developing high-quality nutritional products powered by **natural astaxanthin**. Our mission is to provide innovative **antioxidant supplements** that support long-term health, wellness, and vitality.  
 
-🌐 Visit our official website: www.iconthin.com
+🌐 Visit our official website: [www.iconthin.com](https://www.iconthin.com)  
 
-Our flagship brand, Astadaily
-, brings premium astaxanthin supplements directly to customers worldwide. With cutting-edge extraction technology and strict quality standards, Astadaily products are trusted by those who seek the best in natural health solutions.
+Our flagship brand, **Astadaily**, brings premium **astaxanthin supplements** directly to customers worldwide. With cutting-edge extraction technology and strict quality standards, Astadaily products are trusted by those who seek the best in natural health solutions.  
 
-Why Astaxanthin?
+---
 
-Astaxanthin is often called the super antioxidant supplement because of its unmatched ability to fight oxidative stress. Scientific studies highlight numerous astaxanthin benefits across different areas of health:
+## Why Astaxanthin?  
 
-Eye Health: Supports focus, reduces eye strain, relieves dry eyes, and helps prevent blurry vision. Many customers choose astaxanthin for eyes as part of their daily vision support supplements.
+Astaxanthin is often called the **super antioxidant supplement** because of its unmatched ability to fight oxidative stress. Scientific studies highlight numerous **astaxanthin benefits** across different areas of health:  
 
-Skin Health: Promotes youthful-looking skin, fights wrinkles from the inside out, and protects against UV damage.
+- **Eye Health**: Supports focus, reduces **eye strain**, relieves **dry eyes**, and helps prevent **blurry vision**. Many customers choose **astaxanthin for eyes** as part of their daily **vision support supplements**.  
+- **Skin Health**: Promotes youthful-looking skin, fights wrinkles from the inside out, and protects against UV damage.  
+- **Heart Health**: Acts as a natural **dietary supplement for heart health**, supporting circulation and reducing oxidative damage.  
+- **Muscle Recovery**: Helps reduce soreness and supports faster post-workout recovery.  
 
-Heart Health: Acts as a natural dietary supplement for heart health, supporting circulation and reducing oxidative damage.
+---
 
-Muscle Recovery: Helps reduce soreness and supports faster post-workout recovery.
+## Astadaily: Your Daily Health Partner  
 
-Astadaily: Your Daily Health Partner
+At **Astadaily**, we believe that true wellness comes from nature. Our products are formulated with pure, natural **astaxanthin** and other powerful antioxidants. Whether you are looking for a **healthy eyes vitamin**, an **anti-aging skin supplement**, or a **good antioxidant supplement** for overall wellness, Astadaily offers science-backed solutions.  
 
-At Astadaily, we believe that true wellness comes from nature. Our products are formulated with pure, natural astaxanthin and other powerful antioxidants. Whether you are looking for a healthy eyes vitamin, an anti-aging skin supplement, or a good antioxidant supplement for overall wellness, Astadaily offers science-backed solutions.
+🌐 Visit Astadaily: [www.astadaily.com](https://www.astadaily.com)  
 
-🌐 Visit Astadaily: www.astadaily.com
+✨ Featured Product: [**Astadaily All-in-One**](https://astadaily.com/products/all-in-one) – a complete **vision support supplement** combining natural **astaxanthin**, lutein, and blueberry extract for eye health, skin support, and overall vitality.  
 
-✨ Featured Product: Astadaily All-in-One
- – a complete vision support supplement combining natural astaxanthin, lutein, and blueberry extract for eye health, skin support, and overall vitality.
+---
 
-Commitment to Quality
+## Commitment to Quality  
 
-Science-backed formulations based on peer-reviewed research
+- **Science-backed formulations** based on peer-reviewed research  
+- **Sustainably sourced astaxanthin** with superior bioavailability  
+- **Third-party tested** for purity and safety  
 
-Sustainably sourced astaxanthin with superior bioavailability
+At **Iconthin Biotech**, we are committed to delivering supplements that you can trust.  
 
-Third-party tested for purity and safety
+---
 
-At Iconthin Biotech, we are committed to delivering supplements that you can trust.
-
-✨ Invest in your health today with Astadaily All-in-One
- — powered by Iconthin Biotech.
+✨ *Invest in your health today with [Astadaily All-in-One](https://astadaily.com/products/all-in-one) — powered by Iconthin Biotech.*  
